@@ -63,6 +63,10 @@ Push yourself outside of your comfort zone.
 
 Celebrate your wins, enjoy making mistakes and learning from them, hold yourself to a high standard but don&#39;t dwell on mistakes. It&#39;s very easy to interpret &quot;Always Be Hungry&quot; with never feeling happy about what you&#39;re able to achieve, this is the opposite of what I encourage.
 
+## Measure and Use Data
+
+The best way to make sure you're doing the right thing and you're making improvements is by measuring. Every initiative should start out with making sure you understand the problem, opportunity, size and then you measure your impact. It's very easy to be moving in the wrong direction and not realizing.
+
 ## Care for Others
 
 Make sure others around you are healthy and happy. Support each other to achieve their goals. Helping others is not only the right thing to do but also will help you grow as a person.
